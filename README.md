@@ -1,2 +1,0 @@
-# Rene
-Chuck Norris Fail
